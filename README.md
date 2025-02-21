@@ -1,0 +1,1 @@
+# SalesSnapshot-CRM-Insights-for-Managers
